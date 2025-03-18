@@ -1,0 +1,1 @@
+Enhancing Safety in Autonomous Long-Distance Trucking through Facial Recognition Technology
